@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @55Whyman555
+- 👋 Hi, I’m @WhyMan55
 - 👀 I’m interested in doing nothing and being a lazy dork
 - 🌱 I’m currently learning nothing, i'm stagnating
 - 💞️ I’m looking to collaborate on nothing
