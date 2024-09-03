@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me dunno
 - 😄 Pronouns: was/were
-- ⚡ Fun fact: студент вгту
+- ⚡ Fun fact: студент вгту Ушаков Антон
 
 <!---
 55Whyman555/55Whyman555 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
